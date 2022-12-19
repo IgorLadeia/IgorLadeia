@@ -1,4 +1,4 @@
-### Hi I'm Igor Ladeia 👋
+### Hi I'm Igor Ladeia. 👋
 
 <div align="center">
   <a href="https://github.com/IgorLadeia"> 
